@@ -1,4 +1,4 @@
-![dim_v4](https://github.com/TrinsyCa/DIM-v4-TechnoBlue/assets/96669149/c8f5608c-72a2-47ee-8472-bd5d5f9cffa4.jpg)
+![dim_v4](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/i/25e3834d-cd1c-4b37-8d6f-ce31e38fb8bb/d6618jv-ad3dd5d6-d357-44c1-b0e1-2de4970c5c88.jpg/v1/fill/w_894,h_894,q_70,strp/dim_v4___technoblue_by_biueguy_d6618jv-pre.jpg)
 
 (EN)
 
